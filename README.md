@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @JahCSpeed
+- This is where I post school/personal projects. 
+- Hope you see something you like!
