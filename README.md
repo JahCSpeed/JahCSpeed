@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @JahCSpeed
+- 👋 Hi, I’m @Jah Caffie Speed
 - This is where I post school/personal projects. 
 - Hope you see something you like!
